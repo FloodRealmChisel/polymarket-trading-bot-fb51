@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with custom Polymarket Addon | volume-analysis + custom-strategies, the #1 addon. Includes volume-analysis and custom-strategies for a smoother and
 
 
 
